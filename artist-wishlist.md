@@ -6,3 +6,4 @@
 * [Deanosaior](https://www.furaffinity.net/user/deanosaior/)
 * [Zazu](https://www.furaffinity.net/user/zazush-una/)
 * [Bebl](https://www.furaffinity.net/user/bebl)
+* [Frusha](https://www.furaffinity.net/user/frusha/)
