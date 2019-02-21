@@ -7,3 +7,4 @@
 * [Zazu](https://www.furaffinity.net/user/zazush-una/)
 * [Bebl](https://www.furaffinity.net/user/bebl)
 * [Frusha](https://www.furaffinity.net/user/frusha/)
+* [Nawka](https://www.furaffinity.net/user/nawka/)
