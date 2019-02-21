@@ -40,7 +40,7 @@ Three toes, no dewclaw. Digitigrade. Details below:
 #### Sole
 * No pads
 * Two large round contact surfaces with a slight indentation between them. All symmetrical.
-* Where the sole meets the ankle, the form is like the letter 'W' - the ground-contacting parts of the sole on the inside and outside go further back than the middle. (for example, look at the bottom rendering [here](https://www.furaffinity.net/view/24825327/)**
+* Where the sole meets the ankle, the form is like the letter 'W' - the ground-contacting parts of the sole on the inside and outside go further back than the middle. (for example, look at the bottom rendering [here](https://www.furaffinity.net/view/24825327/))
 
 ### Genitalia
 
