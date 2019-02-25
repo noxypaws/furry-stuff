@@ -15,6 +15,9 @@ He/him/his, they/their/theirs
 ## Morphology
 Feral/quadrupedal
 
+### Body
+Lithe, toned, general structure somewhere between a big cat and a horse. Size of a very large horse, maybe slightly larger.
+
 ### Wings
 * Typical western quadrupedal wings
 * Membrane is the same color as the body
@@ -41,7 +44,7 @@ Three toes, no dewclaw. Digitigrade. Details below:
 #### Sole
 * No pads
 * Two large round contact surfaces with a slight indentation between them. All symmetrical.
-* Where the sole meets the ankle, the form is like the letter 'W' - the ground-contacting parts of the sole on the inside and outside go further back than the middle. (for example, look at the bottom rendering [here](https://www.furaffinity.net/view/24825327/))
+* Where the sole meets the ankle, the form is like the letter 'W' - the ground-contacting parts of the sole on the inside and outside go further back than the middle. (for example, look at the bottom rendering [here](https://www.furaffinity.net/view/24825327/) (not this character, just a relevant image))
 
 ### Genitalia
 
@@ -72,6 +75,9 @@ All stripes are bright green and glowing. Slightly curved, slightly tapering at 
 
 ### Paws
 The undersides of the paws (fore and hind) are the same bright glowing green as the stripes. This covers the bottoms of the toes and the soles.
+
+### Eyes
+Blue, glowing. Same blue as on the underside of the penis.
 
 
 ## Visual references
