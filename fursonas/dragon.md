@@ -1,4 +1,4 @@
-# Noxy the Dragon
+# Noxy the Dragon ([skip to [visual references](#visualreferences)]())
 
 ## Species
 Dragon, western, winged, feral/quadrupedal
@@ -79,7 +79,7 @@ The undersides of the paws (fore and hind) are the same bright glowing green as 
 ### Eyes
 Blue, glowing. Same blue as on the underside of the penis.
 
-
+(#visualreferences)
 ## Visual references
 None of the notes here are meant to be negative towards the artists that did the work. These art pieces just predate this character's design decisions, so I'm calling out the differences to avoid confusion where the description and the art differ.
 * [Hindpaws by DrakoSacerdos](https://sketchfab.com/3d-models/noxal-paws-b556178f3a424aa5ab3424c3048f8aca) (3d model) (SFW) ([FurAffinity link](https://www.furaffinity.net/view/29672509/))
