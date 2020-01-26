@@ -1,4 +1,4 @@
-# Noxy the Dragon ([skip to [visual references](#visualreferences)]())
+# Noxy the Dragon (skip to [visual references](#visualreferences))
 
 ## Species
 Dragon, western, winged, feral/quadrupedal
@@ -81,6 +81,11 @@ Blue, glowing. Same blue as on the underside of the penis.
 
 (#visualreferences)
 ## Visual references
+* [The Goods by Killioma](https://www.furaffinity.net/view/31423472/) **fave feet structure**
+* [Take a peek by NitroDS](https://www.furaffinity.net/view/31424535/)
+* [Feet and feet accessories by Killiona](https://www.furaffinity.net/view/33417309/) **fave feet structure**
+* [Eruption by Killioma](https://www.furaffinity.net/view/33417281/)
+* [Toes & knot by Incorgnito](https://www.furaffinity.net/view/33417486/) **fave feet structure**
 None of the notes here are meant to be negative towards the artists that did the work. These art pieces just predate this character's design decisions, so I'm calling out the differences to avoid confusion where the description and the art differ.
 * [Hindpaws by DrakoSacerdos](https://sketchfab.com/3d-models/noxal-paws-b556178f3a424aa5ab3424c3048f8aca) (3d model) (SFW) ([FurAffinity link](https://www.furaffinity.net/view/29672509/))
   * These are more or less perfect. The toes could be slightly longer, but apart from that these are ideal.
