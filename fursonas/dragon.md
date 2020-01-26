@@ -1,4 +1,4 @@
-# Noxy the Dragon (skip to [visual references](#visualreferences))
+# Noxy the Dragon (skip to [visual references](https://github.com/noxypaws/furry-stuff/blob/master/fursonas/dragon.md#visual-references))
 
 ## Species
 Dragon, western, winged, feral/quadrupedal
